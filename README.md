@@ -1,2 +1,2 @@
 20223148 jeeseongeun
-Kookmin Univ. SW
+Kookmin Univ. SW dept.
